@@ -1,4 +1,4 @@
-
+# Estee Lauder
 
 
 Question: Have there been restructuring or organizational changes?
